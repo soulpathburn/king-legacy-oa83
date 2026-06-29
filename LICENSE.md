@@ -1,4 +1,4 @@
-#  
+#  Experience king legacy like never before with king legacy updated Scripts, the #1 Script. Includes anti-ban and invisibility for unbeatable
 
 
 
